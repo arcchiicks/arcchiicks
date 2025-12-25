@@ -1,5 +1,5 @@
                  . αΓκΗαΜ . κηιιgΗτ . glazer
       boom
  
-ion know hwo to coding bro  ![image alt](https://github.com/arcchiicks/priv-file/blob/84596dcd4b041bdbf10f3b8cae0085c9e5f71a58/Batman%20Arkham%20Knight%20End%20on%20Make%20a%20GIF.gif)
+ion know hwo to coding bro  ![image alt](https://github.com/arcchiicks/priv-file/blob/6e5f7b4cd93a7995314df8ff92f03fcdd0cbba95/-%20Find%20%26%20Share%20on%20GIPHY.gif)
 
